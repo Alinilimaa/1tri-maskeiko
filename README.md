@@ -1,1 +1,1 @@
-# 1tri-maskeiko
+# alini g/trimestre.
